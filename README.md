@@ -1,4 +1,5 @@
-# mwleong1970![christ](https://github.com/mwleong1970/mwleong1970/assets/136162876/9c0d0689-c497-45cd-a2af-c297656140a7)
+# mwleong1970
+![gauguin](https://github.com/mwleong1970/mwleong1970/assets/136162876/e23e0cda-4092-4d84-a125-7b0a5023fcbc)
 
 Four great gates has the city of Damascus
    And four Great Wardens, on their spears reclining,
